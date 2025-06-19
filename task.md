@@ -1,5 +1,4 @@
-![cherry](https://github.com/user-attachments/assets/1620b35e-ca2c-4a3a-a2c4-8279ae6773df)![cherry](https://github.com/user-attachments/assets/0e59333d-d664-46d9-82ea-53af3343124a)![cherry](https://github.com/user-attachments/assets/4302cdf2-d31a-40e5-b5c9-87127e8be3cf)# 🍨 Build Your Ice Cream Sundae
-
+# 🍨 Build Your Ice Cream Sundae
 ## ✅ Choose Your Base
 - [x] Vanilla
 - [ ] Chocolate
