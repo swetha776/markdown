@@ -1,0 +1,1 @@
+![https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.etsy.com%2Fin-en%2Flisting%2F1172037045%2Fcherry-rotoscope-digital-drawing-svg-eps&psig=AOvVaw14PoQ8qPrWY2GHpyOkBANa&ust=1750437914561000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCMCc9sX3_Y0DFQAAAAAdAAAAABAE]
